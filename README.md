@@ -1,4 +1,4 @@
-# my college teacher Email I'd:
+# my college teacher Email I'd:umacse.s@gmail.com
 
 
 # CUSTOMER-SEGMENTATION-USING-DATA-SCIENCE-PHASE-3
